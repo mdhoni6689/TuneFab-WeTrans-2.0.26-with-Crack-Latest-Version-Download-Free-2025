@@ -1,6 +1,6 @@
 # TuneFab-WeTrans-2.0.26-with-Crack-Latest-Version-Download-Free-2025
 roP<div align="center">
-<img src="https://i0.wp.com/allpcsoftwares.info/wp-content/uploads/2022/12/Cockos-Sony Vegas Pro 15 -5-cracked.webp?resize=203%2C300&ssl=1" width="200">
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTwBeNTvnEEPiVwjCmt4OM3z5hzymKFXKgZHQ&s" width="200">
 </div>
 
 # TuneFab-WeTrans Pro
